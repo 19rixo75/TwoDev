@@ -1,1 +1,1 @@
-first PC
+first PC Super PC
